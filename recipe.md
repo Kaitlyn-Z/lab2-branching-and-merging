@@ -11,7 +11,6 @@
 2. In a large bowl, whisk together the flour, sugar, and cocoa powder.
 3. ...
 
-## Additional Directions by Alice:
 4. In a separate bowl, beat the eggs and add them to the mixture. Stir until well combined.
 5. Gradually add the milk and vegetable oil to the mixture, continuing to stir.
 6. Add a tablespoon of instant coffee to the dry ingredients for a hint of mocha flavour.
